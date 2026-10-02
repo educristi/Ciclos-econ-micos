@@ -8,3 +8,4 @@ precios al alza y especulación desbordada;
 y después llegan quiebras, desempleo,
 bancos cerrados y bolsas hundidas.
 Ese vaivén —expansión, techo, recesión, recuperación—
+es lo que hoy llamamos ciclo económico.
