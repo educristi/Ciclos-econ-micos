@@ -9,3 +9,4 @@ y después llegan quiebras, desempleo,
 bancos cerrados y bolsas hundidas.
 Ese vaivén —expansión, techo, recesión, recuperación—
 es lo que hoy llamamos ciclo económico.
+Antes de existir la estadística moderna
