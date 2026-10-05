@@ -11,3 +11,4 @@ Ese vaivén —expansión, techo, recesión, recuperación—
 es lo que hoy llamamos ciclo económico.
 Antes de existir la estadística moderna
 ya se palpaba en el precio del trigo,
+la plata, las acciones de una
