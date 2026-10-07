@@ -13,3 +13,4 @@ Antes de existir la estadística moderna
 ya se palpaba en el precio del trigo,
 la plata, las acciones de una
 compañía o el valor de una tierra.
+Entre 1500 y 1920 el mundo pasó
