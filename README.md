@@ -16,3 +16,4 @@ compañía o el valor de una tierra.
 Entre 1500 y 1920 el mundo pasó
 de economías agrarias y comerciales
 a sociedades industriales y financieras.
+Con cada salto vinieron nuevas formas de crisis:
