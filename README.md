@@ -19,4 +19,4 @@ a sociedades industriales y financieras.
 Con cada salto vinieron nuevas formas de crisis:
 burbujas coloniales, pánicos bancarios, default
 soberanos y grandes caídas bursátiles.
-
+1500–1600: inflación, conquista y deuda real
