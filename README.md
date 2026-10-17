@@ -20,3 +20,4 @@ Con cada salto vinieron nuevas formas de crisis:
 burbujas coloniales, pánicos bancarios, default
 soberanos y grandes caídas bursátiles.
 1500–1600: inflación, conquista y deuda real
+Tras 1492, la llegada masiva de oro y plata
