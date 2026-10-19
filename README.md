@@ -22,3 +22,4 @@ soberanos y grandes caídas bursátiles.
 1500–1600: inflación, conquista y deuda real
 Tras 1492, la llegada masiva de oro y plata
 de América a España provocó uno de los
+los primeros fenómenos macroeconómicos 
