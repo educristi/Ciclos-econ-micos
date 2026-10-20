@@ -23,3 +23,4 @@ soberanos y grandes caídas bursátiles.
 Tras 1492, la llegada masiva de oro y plata
 de América a España provocó uno de los
 los primeros fenómenos macroeconómicos 
+documentados a escala global:
