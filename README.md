@@ -25,3 +25,4 @@ de América a España provocó uno de los
 los primeros fenómenos macroeconómicos 
 documentados a escala global:
 la Revolución de los Precios. 
+Más metal precioso circulando
