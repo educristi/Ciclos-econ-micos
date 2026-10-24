@@ -27,3 +27,4 @@ documentados a escala global:
 la Revolución de los Precios. 
 Más metal precioso circulando
 significó más dinero persiguiendo bienes,
+y los precios subieron durante décadas
