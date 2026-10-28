@@ -30,3 +30,4 @@ significó más dinero persiguiendo bienes,
 y los precios subieron durante décadas
 en buena parte de Europa.
 Las monarquías, sin embargo, vivían por
+encima de sus posibilidades por guerras constantes.
