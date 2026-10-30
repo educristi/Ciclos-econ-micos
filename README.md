@@ -32,3 +32,4 @@ en buena parte de Europa.
 Las monarquías, sin embargo, vivían por
 encima de sus posibilidades por guerras constantes.
 España sufrió varios default reales
+(por ejemplo en 1557, 1575 y 1596),
