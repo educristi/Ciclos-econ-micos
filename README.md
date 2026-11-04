@@ -36,3 +36,4 @@ España sufrió varios default reales
 reestructurando deuda de banqueros
 como los Fugger y los Welser.
 Fue un ciclo temprano de auge imperial
+y colapso crediticio: ingresos extraordinarios
