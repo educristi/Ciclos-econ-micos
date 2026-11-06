@@ -38,3 +38,4 @@ como los Fugger y los Welser.
 Fue un ciclo temprano de auge imperial
 y colapso crediticio: ingresos extraordinarios
 de Indias, gasto militar insostenible
+y bancarrotas que arrastraban 
