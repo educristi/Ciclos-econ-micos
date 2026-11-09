@@ -40,3 +40,4 @@ y colapso crediticio: ingresos extraordinarios
 de Indias, gasto militar insostenible
 y bancarrotas que arrastraban 
 a casas financieras enteras.
+En paralelo, Amberes y luego Ámsterdam
