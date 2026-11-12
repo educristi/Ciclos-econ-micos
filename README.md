@@ -42,3 +42,4 @@ y bancarrotas que arrastraban
 a casas financieras enteras.
 En paralelo, Amberes y luego Ámsterdam
 se convirtieron en centros financieros donde
+donde ya existían mercados de valores
