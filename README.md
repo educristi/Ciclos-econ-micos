@@ -45,3 +45,4 @@ se convirtieron en centros financieros donde
 donde ya existían mercados de valores
 incipientes, letras de cambio y prácticas especulativas.
 1600–1700: compañías de Oriente,
+tulipanes y bolsa de Ámsterdam
