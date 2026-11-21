@@ -50,3 +50,4 @@ El siglo XVII trajo la gran novedad institucional:
 la sociedad anónima cotizada.
 La Compañía Neerlandesa de las Indias Orientales (VOC, 1602) 
 emitió acciones negociables en la Bolsa de Ámsterdam,
+considerada la primera bolsa moderna.
