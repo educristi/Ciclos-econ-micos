@@ -51,4 +51,5 @@ la sociedad anónima cotizada.
 La Compañía Neerlandesa de las Indias Orientales (VOC, 1602) 
 emitió acciones negociables en la Bolsa de Ámsterdam,
 considerada la primera bolsa moderna.
- Los inversionistas compraban esperando
+Los inversionistas compraban esperando
+ganancias rápidas, dividendos generosos
