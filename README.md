@@ -53,3 +53,4 @@ emitió acciones negociables en la Bolsa de Ámsterdam,
 considerada la primera bolsa moderna.
 Los inversionistas compraban esperando
 ganancias rápidas, dividendos generosos
+y monopolios comerciales.
