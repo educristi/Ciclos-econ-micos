@@ -54,3 +54,4 @@ considerada la primera bolsa moderna.
 Los inversionistas compraban esperando
 ganancias rápidas, dividendos generosos
 y monopolios comerciales.
+Tulipomanía (1636–1637)
